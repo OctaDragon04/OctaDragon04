@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and gaming
 - 🌱 I’m currently learning advance python
 - 💞️ I’m looking to collaborate on project of web development
-- 📫 How to reach me at personally by thatstooyoung@gmail.com
+- 📫 How to reach me at personally by thatstooyoung@outlook.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: not working for anyone.
 
