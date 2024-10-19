@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming and gaming
 - 🌱 I’m currently learning advance python
 - 💞️ I’m looking to collaborate on project of web development
-- 📫 How to reach me at personally by email: thatstooyoung@outlook.com | LinkedIn: https://www.linkedin.com/in/rudra-giri-goswami
+- 📫 How to reach me at personally by email: rudra.giri.goswami0000@gmail.com | LinkedIn: https://www.linkedin.com/in/rudra-giri-goswami
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: not working for anyone.
 
